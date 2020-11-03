@@ -11,9 +11,9 @@ schachtg@myumanitoba.ca
   * Available at any time.
 
 ### Education
-* High School Diploma, Dakota Collegiate  
-* Currently enrolled in classes at the University of Manitoba  
-  * Majoring in Computer Science, while minoring in Physics
+* High School Diploma, Dakota Collegiate.  
+* Currently enrolled in classes at the University of Manitoba.  
+  * Majoring in Computer Science, while minoring in Physics.
 
 ### Related Skills
 * **Customer Service Skills**
@@ -28,12 +28,12 @@ schachtg@myumanitoba.ca
 
 * **Winnipeg Harvest**  
   Summer 2015
-  * Was tasked with organizing food in order for it to be distributed
+  * Was tasked with organizing food in order for it to be distributed.
 
 * **Lunch Supervisor, Highbury School**  
   September 2012 - June 2013
   * Supervised classrooms during lunch to make sure the students were behaving.
-  * Confronted students causing issues to get them to stop.
+  * Confronted students causing issues.
  
 ### Work Experience
 * **Sobeys Pembina Highway**
@@ -49,18 +49,18 @@ schachtg@myumanitoba.ca
   August 2017 - August 2020
   Contact: Cody Kazimer | (204) 414-8597  
   Position: Line Chef, General Utility
-  * Worked as a team to prepare meals in a timely and efficient manner
-  * Cleaned equipment such as deep friers and stoves, as well as scrubbing floors and counter tops
+  * Worked as a team to prepare meals in a timely and efficient manner.
+  * Cleaned equipment such as deep friers and stoves, as well as scrubbing floors and counter tops.
  
 * **Art Bookbindery: Empowering Writers to Self-Publish**
 
   Summer of 2016  
   Contact: Michael Schacht  
   Position: General Labor  
-  * My duties included things like packing books, loading paper, and vaccuuming the shop
+  * My duties included things like packing books, loading paper, and vaccuuming the shop.
  
 ### Personal Interests
- * I enjoy reading, running, and playing "Dungeons & Dragons"
+ * I enjoy reading, running, and playing "Dungeons & Dragons."
  
 ### References 
- * References available upon request
+ * References available upon request.
